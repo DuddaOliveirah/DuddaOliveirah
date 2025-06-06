@@ -6,7 +6,7 @@ Me chamo Eduarda de Oliveira, tenho 16 anos e...
 - Trabalho como recepcionista e auxiliar em odonto 🦷
 - Amo literatura, animes e arte 📖
 - Sou ótima na cozinha e tenho outros diversos hobbies 🌻
-- Utizo esse espaço para o compartilhamento de meus projetos acadêmicos 👩‍🎓
+- Utilizo esse espaço para o compartilhamento de meus projetos acadêmicos 👩‍🎓
 
   ## você pode entrar em contato comigo pelo email 📧
 
